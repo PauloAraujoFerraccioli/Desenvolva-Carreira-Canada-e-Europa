@@ -1,6 +1,8 @@
 # Desenvolva-Carreira-Canada-e-Europa
 Desenvolva a Carreira Tecnológica Internacional no Canadá e Europa - Notebook para auxiliar a adequar o perfil profissional internacionalmente.
 
+https://notebooklm.google.com/notebook/4d0fa9aa-f924-4553-86c3-39568aac1ce9
+
 https://vanhack.com/candidates
 https://landing.jobs/talent-recruitment/
 https://www.wes.org/credential-evaluations/
